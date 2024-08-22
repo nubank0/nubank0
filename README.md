@@ -11,4 +11,4 @@ Você pode entrar em contato comigo 📫
 alurastartestudante@email.com
 
 @alurastartestudante
-![https://external-preview.redd.it/n%C3%A3o-grita-v0-eWVnYnppamg4MTBjMQs7gu_c7lxS_jRkkVzzvzZIUuPRriV4DL3oARq9gjya.png?width=640&crop=smart&format=pjpg&auto=webp&s=f3ee5292cd9262ddca5cdbfb3c1f35e88259a03e](link)
+![https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fview%2Fcristiano-ronaldo-nao-grita-nao-grita-cristiano-ronaldo-nao-grit-n-grita-gif-10777041687020091715&psig=AOvVaw1wQ_ArSQtGoXhMjGGFqq28&ust=1724419127850000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCKjgnf7XiIgDFQAAAAAdAAAAABAJ](link)
