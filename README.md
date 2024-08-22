@@ -11,4 +11,8 @@ Você pode entrar em contato comigo 📫
 alurastartestudante@email.com
 
 @alurastartestudante
-![https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fview%2Fcristiano-ronaldo-nao-grita-nao-grita-cristiano-ronaldo-nao-grit-n-grita-gif-10777041687020091715&psig=AOvVaw1wQ_ArSQtGoXhMjGGFqq28&ust=1724419127850000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCKjgnf7XiIgDFQAAAAAdAAAAABAJ](link)
+
+tenho 1,80
+escuto Lana Del Rey
+e odeio cólica 
+🐺🐺🌹🌹🔥🔥
